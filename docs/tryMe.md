@@ -6,6 +6,7 @@ Oh man, I sure hope this doesn't have to be professional.
 Y'know, I never actively browsed through quotes to look for that one "inspirational quote" to live my life by, but I think 
 Winston Churchill has some [solid comebacks](https://www.brainyquote.com/quotes/winston_churchill_108948):
 > I may be drunk, Miss, but in the morning I will be sober and you will still be ugly.
+
 ---
 The rest of the quotes I (moderately) enjoy are just really stupid ones under the 
 [funny](https://www.brainyquote.com/quotes/eddie_izzard_128987?src=t_funny) section. Eddie Izzard makes a great point:
